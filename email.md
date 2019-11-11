@@ -1,1 +1,2 @@
-My preferred email address is: john@daytum.io
+My preferred email address is: tyler@daytum.com
+
